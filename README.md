@@ -1,2 +1,2 @@
 # Jovanes
-landingpage by Jovanes
+landingpage by Jovaness
